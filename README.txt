@@ -1,0 +1,1 @@
+developer tshirt shopping mall open source for class edition(tm)
